@@ -1,6 +1,6 @@
 <h4
  
-![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+losers++&color=red)
+![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+losers++&color=red)  (half of these r from me refreshing my page LMAO)
 
 
 
