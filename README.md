@@ -22,8 +22,7 @@ https://ollie59845958.straw.page/
 
 
 
-I WAS MISINFORMED ABOUT THIS PERSON. I DO NOT WHATSOEVER SUPPORT WHAT THEY DO AND DO NOT ASSOCIATE MYSELF AROUND THEM ANYMORE.
-
+𝙄 𝙒𝘼𝙎 𝙈𝙄𝙎𝙄𝙉𝙁𝙊𝙍𝙈𝙀𝘿 𝘼𝘽𝙊𝙐𝙏 𝙏𝙃𝙄𝙎 𝙋𝙀𝙍𝙎𝙊𝙉. 𝙄 𝘿𝙊 𝙉𝙊𝙏 𝙒𝙃𝘼𝙏𝙎𝙊𝙀𝙑𝙀𝙍 𝙎𝙐𝙋𝙋𝙊𝙍𝙏 𝙒𝙃𝘼𝙏 𝙏𝙃𝙀𝙔 𝘿𝙊 𝘼𝙉𝘿 𝘿𝙊 𝙉𝙊𝙏 𝘼𝙎𝙎𝙊𝘾𝙄𝘼𝙏𝙀 𝙈𝙔𝙎𝙀𝙇𝙁 𝘼𝙍𝙊𝙐𝙉𝘿 𝙏𝙃𝙀𝙈 𝘼𝙉𝙔𝙈𝙊𝙍𝙀.
 
 
 
