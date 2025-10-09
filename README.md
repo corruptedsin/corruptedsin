@@ -7,9 +7,8 @@
 
 
 
-<img width="800" height="319" alt="image" src="https://github.com/user-attachments/assets/275f7933-f51d-412b-8b14-a1842c71b216" />
 
-
+![ezgif com-animated-gif-maker_1](https://github.com/user-attachments/assets/4bbef4ca-9987-4759-b852-bf301c6bacd0)
 
 
 
@@ -40,4 +39,20 @@ I WAS MISINFORMED ABOUT THIS PERSON. I DO NOT WHATSOEVER SUPPORT WHAT THEY DO AN
 
 𖤝
 
-⭑𓂃 - i am usually offtab playing something; i enjoy playing dead by daylight, rdr2, resident evil, the legend of zelda  
+⭑𓂃 - i am usually offtab playing something; i enjoy playing dead by daylight, rdr2, resident evil, the legend of zelda , splatoon. if you  enjoy these pls int! 
+
+
+![dead-by-daylight-dbd](https://github.com/user-attachments/assets/15601e8f-9c7a-4de2-82b1-916e2eab2604)
+
+
+
+![dwight-fairfield-dwight](https://github.com/user-attachments/assets/b4411dbe-1e41-4382-a871-332a447ce613)
+
+
+
+
+![dead-by-daylight-dbd (1)](https://github.com/user-attachments/assets/91d3d076-585d-444f-b6f4-9f0935fb99d9)
+
+
+
+![dbd-hop-on-dbd](https://github.com/user-attachments/assets/171233cd-e98c-4272-b1fd-dbc0dc224407)
