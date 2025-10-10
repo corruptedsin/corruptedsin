@@ -1,6 +1,3 @@
-![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+losers++&color=red)  
-
-
 
 
 
