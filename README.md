@@ -27,7 +27,8 @@ https://ollie59845958.straw.page/
 
 
 ᶻ 𝗓 𐰁 .ᐟ - i have social anxiety. so please be patient with me if i struggle to talk or do something. i always act out what i do before i do it, i am trying to get better with talking to people, i'm sorry if im awkward or make you feel uncomfortable, i advise u dni if u dont like how i act.  i get upset over small things easily and tend to isolate from others if so. i have been currently dealing with a bone tumor in my hip called an osteoid osteoma for the past 4 years, its causing me much pain and irritation so i do apologise if i randomly go afk, silent or my mood changes at all.
-i'm not looking to form new friendships at this time due to my mental status, i will cut people off quickly if i'm uncomfortable or feel like the friendship won't work out, the medication i am on at the moment makes it difficult for me to show emotions at all times so i will be blunt, whisper to interact lol
+...
+ i will cut people off quickly if i'm uncomfortable or feel like the friendship won't work out, the medication i am on at the moment makes it difficult for me to show emotions at all times so i will be blunt, whisper to interact lol
 
 
 𖤝
