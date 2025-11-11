@@ -1,8 +1,9 @@
 
+<img width="640" height="85" alt="tumblr_0421475d7b07e3c6daee2b237ce11a95_abfdae6f_640" src="https://github.com/user-attachments/assets/abbc3c48-e173-4f4f-ac94-6f3882d7793d" />
 
 
-<img width="1675" height="540" alt="Untitled252_20250726115031" src="https://github.com/user-attachments/assets/0f6c7dc7-39ed-4616-85d9-62d7f92949d4" />
 
+![19f65f05c8698bec0cbf6d1f2f3123b0](https://github.com/user-attachments/assets/5ba59a76-1f14-4516-af89-bcd22ef35949)
 
 
 
@@ -24,6 +25,8 @@ https://ollie59845958.straw.page/
 
 
 
+<img width="800" height="600" alt="deer-antlers-horns-png-image-1374" src="https://github.com/user-attachments/assets/30aa9a96-b526-4c48-9a21-b2f8f679f71d" />
+
 
 
 ᶻ 𝗓 𐰁 .ᐟ - i have social anxiety. so please be patient with me if i struggle to talk or do something. i always act out what i do before i do it, i am trying to get better with talking to people, i'm sorry if im awkward or make you feel uncomfortable, i advise u dni if u dont like how i act.  i get upset over small things easily and tend to isolate from others if so. i have been currently dealing with a bone tumor in my hip called an osteoid osteoma for the past 4 years, its causing me much pain and irritation so i do apologise if i randomly go afk, silent or my mood changes at all.
@@ -42,6 +45,7 @@ https://ollie59845958.straw.page/
 
 
 
+<img width="640" height="85" alt="tumblr_0421475d7b07e3c6daee2b237ce11a95_abfdae6f_640" src="https://github.com/user-attachments/assets/5705d032-1125-43cc-aa54-050804f390f4" />
 
 
 
