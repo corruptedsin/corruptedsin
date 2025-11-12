@@ -28,8 +28,8 @@ https://ollie59845958.straw.page/
 
 
 
-<img width="800" height="600" alt="deer-antlers-horns-png-image-1374" src="https://github.com/user-attachments/assets/30aa9a96-b526-4c48-9a21-b2f8f679f71d" />
 
+![red-dead-redemption-ii-red-dead-redemption-2](https://github.com/user-attachments/assets/f24a6066-232d-46d7-af2a-da33f9190452)
 
 
 ᶻ 𝗓 𐰁 .ᐟ - i have social anxiety. so please be patient with me if i struggle to talk or do something. i always act out what i do before i do it, i am trying to get better with talking to people, i'm sorry if im awkward or make you feel uncomfortable, i advise u dni if u dont like how i act.  i get upset over small things easily and tend to isolate from others if so. i have been currently dealing with a bone tumor in my hip called an osteoid osteoma for the past 4 years, its causing me much pain and irritation so i do apologise if i randomly go afk, silent or my mood changes at all.
