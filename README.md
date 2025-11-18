@@ -23,22 +23,13 @@
 
 
 
+
 𐔌˙.
 
 
 
 
-
-
-
-
-
-
-
-
-
-
-ᶻ 𝗓 𐰁 .ᐟ - i have social anxiety. so please be patient with me if i struggle to talk or do something. i always act out what i do before i do it, i am trying to get better with talking to people, i'm sorry if im awkward or make you feel uncomfortable, i advise u dni if u dont like how i act.  i get upset over small things easily and tend to isolate from others if so. i have been currently dealing with a bone tumor in my hip called an osteoid osteoma for the past 4 years, its causing me much pain and irritation so i do apologise if i randomly go afk, silent or my mood changes at all.
+ᶻ 𝗓 𐰁 .ᐟ - i have social anxiety. so please be patient with me if i struggle to talk or do something. i always act out what i do before i do it, i am trying to get better with talking to people, i'm sorry if im awkward or make you feel uncomfortable, i advise u dni if u dont like how i act.  i get upset over small things easily and tend to isolate from others if so. i have been currently dealing with a bone tumor in my hip called an osteoid osteoma for the past 4 years, its causing me much pain and irritation so i do apologise if i randomly go afk, silent or my mood changes at all. i am asexual and a lithromantic. 
 ...
 
 
@@ -54,7 +45,8 @@ i will cut people off quickly if i'm uncomfortable or feel like the friendship w
 
 ![222cdbb1](https://github.com/user-attachments/assets/9ad7a204-a7ca-42a9-938f-92fe0681ff66)
 pls read this. dont int w this freak i beg u 
-https://ollie59845958.straw.page/ 
+https://ollie59845958.straw.page/ ....
+ also hi u made it to the bottom. heres some kitties.
 
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⢿⡿⣿⣻⢟⡿⣻⢯⢿⡹⣏⢯⡽⢭⢫⡝⣭⢛⡜⣣⠝⡬⢣⡙⢦⡙⢤⠣⠜⡐⢂⠒⡄⠢⢐⠀⠂⠄⠠⢀⠀
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⢿⣯⣿⣻⣟⡷⣯⢿⣹⢧⡟⣧⢻⡝⣮⢹⢎⣧⠹⣆⠯⣜⡡⢏⡜⣡⠚⡤⠓⡌⢆⠣⡘⠄⡃⢄⠃⠄⢊⠐⡈⠄⠂⠀
