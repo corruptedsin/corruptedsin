@@ -40,8 +40,7 @@ i will cut people off quickly if i'm uncomfortable or feel like the friendship w
 
 ⭑𓂃 - i am usually offtab playing something; i enjoy playing dead by daylight, rdr2, resident evil, the legend of zelda , splatoon. if you  enjoy these pls int! 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=b36fhnztqo5xnyisdqcwq15h5&cover_image=true&theme=default&show_offline=false&background_color=d3cfcf&interchange=false&profanity=false&bar_color=000000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=b36fhnztqo5xnyisdqcwq15h5&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![222cdbb1](https://github.com/user-attachments/assets/9ad7a204-a7ca-42a9-938f-92fe0681ff66)
 pls read this. dont int w this freak i beg u 
